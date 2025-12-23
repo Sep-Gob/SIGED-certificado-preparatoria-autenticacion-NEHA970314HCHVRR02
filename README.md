@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-NEHA970314HCHVRR02
+NEHA970314HCHVRR02
